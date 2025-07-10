@@ -20,4 +20,4 @@
 
 全站隐私模式运行，浏览记录不保存，页面无任何广告干扰。立即点击任意入口，解锁2025年最好用的免费日本AV平台！
 
-<span style="display:none;">[Canonical link]  (  ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/thhh2611/riben99999 ）</span> 
